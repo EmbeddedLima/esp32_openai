@@ -1,1 +1,1 @@
-# acesse www.microprogramador.br para o tutorial
+# Acesse www.microprogramador.com.br para o tutorial.
